@@ -1,0 +1,1 @@
+Studied about python basics in LAB 1
