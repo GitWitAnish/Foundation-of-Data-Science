@@ -1,1 +1,0 @@
-Lab manual ma herr, malai alxi lagyo garna
